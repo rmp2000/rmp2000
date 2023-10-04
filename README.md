@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Fast api and AWS**
 
-- 👯 I’m looking to collaborate on **Open source proyects**
+- 👯 I’m looking to collaborate on **Open source projects**
 
 - 📫 How to reach me **rmartinezpeinado@gmail.com**
 
