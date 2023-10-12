@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rmartinezpeinado@gmail.com**
 
-- ⚡ Fun fact **I was a lifeguard meanwhile I study**
+- ⚡ Fun fact **I was a lifeguard while I studied**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
